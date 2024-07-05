@@ -1,3 +1,5 @@
+![logo](https://github.com/sakshamsharma57/sakshamsharma57/blob/main/Screenshot%202024-07-05%20221740.png)
+
 <h1 align="center">Hi 👋, I'm Saksham Sharma</h1>
 <h3 align="center">A passionate Data Scientist and ML Engineer from India</h3>
 
