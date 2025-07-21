@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sharma16saksham@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1NMgCBVS3Z9xGH14LJZVmOIcjEqfUfIzj/edit?usp=drive_link&ouid=116039530919568365058&rtpof=true&sd=true](https://docs.google.com/document/d/1NMgCBVS3Z9xGH14LJZVmOIcjEqfUfIzj/edit?usp=drive_link&ouid=116039530919568365058&rtpof=true&sd=true)
+- 📄 Know about my experiences: [RESUME](https://drive.google.com/file/d/1B5cU4rCtMLvO7Z1iTOM4lkVQJW3dEQVR/view?usp=drive_link)
 
 - ⚡ Fun fact **I think I am Funny and I am pretty good at Basketball😎**
 
